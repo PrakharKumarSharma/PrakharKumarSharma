@@ -1,2 +1,2 @@
-# Prakhar-Kumar-Sharma
+# PrakharKumarSharma
 Hi, I am Prakhar Kumar Sharma 👋
